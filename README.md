@@ -1,2 +1,3 @@
 # intro
-Info
+To contact me write to jakelopezcarretero@gmail.com
+thank you
